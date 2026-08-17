@@ -9,7 +9,9 @@ blub blub🐟 .
 
 ʚ . 'Depth spelunking fans'. ɞ 
 𓆩💤 . ✦ "Dry text" ^_^ . english is not my first language so there's might be a mistake𓏲 . 💤𓆪
-𓏲. ʚhyperfixation fandoms ɞ : 
+
+𓏲. ʚ hyperfixation fandoms ɞ : 
+
 depth spelunking and PMM (Pupi Midnight Munchies) 
 <Details><summary> DNI stuff </summary> 
 
