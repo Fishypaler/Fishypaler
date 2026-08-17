@@ -8,6 +8,7 @@ blub blub🐟 .
 ✶ . ◠ 💤 wait I'm so cool that I want to backflip (silly) <ins>***SIGN MY STRAWPAGE AND ATABOOK***</ins>!!
 
 ʚ . 'Depth spelunking fans'. ɞ 
+𓆩💤 . ✦ "Dry text" ^_^ . english is not my first language so there's might be a mistake𓏲 . 💤𓆪
 
 --- 
 
