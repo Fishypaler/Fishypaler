@@ -2,8 +2,12 @@
 
 "My <ins>aim pretty good</ins>, eh? "
 
- hello! 🐟
-my name is <sup>fishy or fishpaler </sup> *coding is my favorite but struggle lmao* 
+blub blub🐟 . 
+╯ʚmy name is <sup>fishy or fishpaler </sup> *coding is my favorite but struggle lmao* ɞ
+
+✶ . ◠ 💤 wait I'm so cool that I want to backflip (silly) <ins>***SIGN MY STRAWPAGE AND ATABOOK***</ins>!!
+
+ʚ . 'Depth spelunking fans'. ɞ 
 
 --- 
 
