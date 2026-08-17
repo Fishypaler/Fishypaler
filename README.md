@@ -2,7 +2,9 @@
 
 "My <ins>aim pretty good</ins>, eh? "
 
-  hello! 🐟
-my name is <sup>fishy or fishpaler </sup> **^_^ this my first time to coding gulp I will tried my best though**
+ hello! 🐟
+my name is <sup>fishy or fishpaler </sup> *coding is my favorite but struggle lmao* 
 
-[strawpage](https://fish-aero.straw.page) [💤] [Atabook](https://fishpaler.atabook.org/) 
+--- 
+
+[strawpage](https://fish-aero.straw.page) [💤] [Atabook](https://fishpaler.atabook.org/)
