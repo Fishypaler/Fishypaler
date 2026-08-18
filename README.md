@@ -1,6 +1,6 @@
-<img src="https://files.catbox.moe/0z0day.png" width="300" height="300"/>
+<p align=Center><img src="https://files.catbox.moe/0z0day.png" width="300" height="300"/> </p>
 
-<h2> "My <ins>aim pretty good</ins>, eh? " </h2>
+<p align=center>"My <ins>aim pretty good</ins>, eh?"</p>
 
 blub blub🐟 . 
 ╯ʚmy name is <sup>fishy or fishpaler </sup> *coding is my favorite but struggle lmao* ɞ
@@ -30,4 +30,6 @@ depth spelunking and PMM (Pupi Midnight Munchies) </div>
 --- 
 
 <p align="center"> <a href=https://fish-aero.straw.page>strawpage</a> | 💤 |
-<a href=https://fishpaler.atabook.org/>Atabook</a>
+<a href=https://fishpaler.atabook.org/>Atabook</a> | 💤 | 
+<a href= https://pronouns.cc/@Fishpaler>prns.cc</a>
+</p>
