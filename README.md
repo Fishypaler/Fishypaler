@@ -1,6 +1,6 @@
 <p align=Center><img src="https://files.catbox.moe/0z0day.png" width="300" height="300"/> </p>
 
-<p align=center>"My <ins>aim pretty good</ins>, eh?"</p>
+<p align=center><a href=https://depthspelunking.miraheze.org/wiki/The_Dealer >"My <ins>aim pretty good</ins>>, eh?"</a> </p>
 
 blub blub🐟 . 
 ╯ʚmy name is <sup>fishy or fishpaler </sup> *coding is my favorite but struggle lmao* ɞ
