@@ -10,9 +10,9 @@ blub blub🐟 .
 ʚ . 'Depth spelunking fans'. ɞ 
 𓆩💤 . ✦ "Dry text" ^_^ . english is not my first language so there's might be a mistake𓏲 . 💤𓆪
 
-𓏲. ʚ hyperfixation fandoms ɞ : 
+<div align=center> 𓏲. ʚ hyperfixation fandoms ɞ : <br>
 
-depth spelunking and PMM (Pupi Midnight Munchies) 
+depth spelunking and PMM (Pupi Midnight Munchies) </div>
 <Details><summary> DNI stuff </summary> 
 
   * basic DNI
@@ -29,4 +29,5 @@ depth spelunking and PMM (Pupi Midnight Munchies)
 
 --- 
 
-[strawpage](https://fish-aero.straw.page) [💤] [Atabook](https://fishpaler.atabook.org/)
+<p align="center"> <a href=https://fish-aero.straw.page>strawpage</a> | 💤 |
+<a href=https://fishpaler.atabook.org/>Atabook</a>
