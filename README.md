@@ -20,16 +20,16 @@ depth spelunking and PMM (Pupi Midnight Munchies) </div>
   * Supporting with problematic people.
 </details>
 
-<ins>**BYF**</ins>
-> I have DID system or ADHD .
-> Before you interact me I'm often afk or cuddling with my online friends (but I usually alone because I don't want a attention seeker) do i have to tell? that I'm not interested with popular fandoms 💤. yes I love coding but I'm lazy to learn.. but I will tried my best to coding if I can.
-> > My future plan was supposed to Be a coder and I'm not often playing roblox or Minecraft) :(
-> c+h me whatever you want (and I'm sorry if I ignore you I'm just doesn't like being a attention seeker) and I have no idea what to talk because there is fandom I larp lol (also I use this on mobile 💤
-
-
 --- 
 
 <p align="center"> <a href=https://fish-aero.straw.page>strawpage</a> | 💤 |
 <a href=https://fishpaler.atabook.org/>Atabook</a> | 💤 | 
 <a href= https://pronouns.cc/@Fishpaler>prns.cc</a>
 </p>
+
+<ins>**BYF**</ins>
+> I have DID system or ADHD .
+> Before you interact me I'm often afk or cuddling with my online friends (but I usually alone because I don't want a attention seeker) do i have to tell? that I'm not interested with popular fandoms 💤. yes I love coding but I'm lazy to learn.. but I will tried my best to coding if I can.
+> > My future plan was supposed to Be a coder and I'm not often playing roblox or Minecraft) :(
+> c+h me whatever you want (and I'm sorry if I ignore you I'm just doesn't like being a attention seeker) and I have no idea what to talk because there is fandom I larp lol (also I use this on mobile 💤
+
